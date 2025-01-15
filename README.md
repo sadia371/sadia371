@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @sadia371.
 - 👀 I’m interested in programing.
-- 🌱 I’m currently in university first year.
 - 💞️ I’m looking to collaborate on getting projects.
 - 📫 You can reach me on my email iamsadiatehreem@gmail.com.
 - 😄 Pronouns: she/her.
